@@ -124,101 +124,14 @@
 <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
 <img width="400" height="55" src="https://github.com/user-attachments/assets/0af6ae18-1ea7-4eff-84ec-5e9b6d36eac8" />
 
-
-
-
-
 <div></div>
 
-<img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
-
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />ᴀꜱᴛʀᴏ [ʜᴏꜱᴛ]</p>
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />ʜᴇ/ʜɪᴍ . ᴅʙʟ + ꜱʜɪᴘꜱ ᴅɴɪ . ꜱꜱ ᴛᴇɴᴛ ɪɴᴛ</p>
 
 
 
-
-<div></div>
 
 <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
-<img width="400" height="55" src="https://github.com/user-attachments/assets/0af6ae18-1ea7-4eff-84ec-5e9b6d36eac8" />
-
-
-
-
-<div></div>
-
-<img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
-
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" /> ᴛᴀᴘʜ [ᴍᴜᴛɪꜱᴍ ʜᴏʟᴅᴇʀ]</p>
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" /> ʜᴇ/ʜɪᴍ . ꜱᴇʟᴇᴄᴛɪᴠᴇ ᴍᴜᴛɪꜱᴍ ʜᴏʟᴅᴇʀ, ꜱᴘᴇᴀᴋ ᴡ/ ᴇᴍᴏᴊɪ . ɪɴᴛ</p>
-
-
-<div></div>
-
-<img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
-<img width="400" height="55" src="https://github.com/user-attachments/assets/0af6ae18-1ea7-4eff-84ec-5e9b6d36eac8" />
-
-
-
-
-<div></div>
-
-<img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
-
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />ᴍɪᴋᴀʜ [ɴᴏꜱᴛᴀʟɢɪᴀ ʜᴏʟᴅᴇʀ]</p>
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />ʜᴇ/ꜱʜᴇ (ꜱʜᴇ ᴛᴇɴᴛ) . ɪɴᴛ . ᴄʜɪʟʟ ᴡɪᴛʜ ᴇᴠᴇʀʏᴏɴᴇ ʙᴜᴛ ᴅɴɪ ʟɪꜱᴛ</p>
-
-
-
-
-<div></div>
-
-<img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
-<img width="400" height="55" src="https://github.com/user-attachments/assets/0af6ae18-1ea7-4eff-84ec-5e9b6d36eac8" />
-
-
-
-<div></div>
-
-<img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
-
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />ᴘᴇᴛɪᴛᴀ [ᴄᴀʀᴇᴛᴀᴋᴇʀ + ꜰᴇᴍɪɴɪɴɪᴛʏ ʜᴏʟᴅᴇʀ]</p>
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />ꜱʜᴇ/ʜᴇʀ . ʜᴇᴀᴠʏ ɪɴᴛ . ꜱᴏᴜʀᴄᴇ ᴀᴛᴛᴀᴄʜᴇᴅ</p>
-
-
-
-<div></div>
-
-<img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
-<img width="400" height="55" src="https://github.com/user-attachments/assets/0af6ae18-1ea7-4eff-84ec-5e9b6d36eac8" />
-
-
-
-<div></div>
-
-<img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
-
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />ꜱʏʟᴠ [ʀᴀᴛɪᴏɴᴀʟɪᴢᴇʀ + ꜰᴇᴍɪɴɪɴɪᴛʏ ʜᴏʟᴅᴇʀ]</p>
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />ꜱʜᴇ/ʜᴇʀ . ᴛᴇɴᴛ ɪɴᴛ . ᴅᴏᴇꜱɴ'ᴛ ᴛᴀʟᴋ ᴍᴜᴄʜ</p>
-
-
-
-
-<div></div>
-
-<img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
-<img width="400" height="55" src="https://github.com/user-attachments/assets/0af6ae18-1ea7-4eff-84ec-5e9b6d36eac8" />
-
-
-
-<div></div>
-
-<img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
-
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />ᴠ4ᴘ0ʀ [🍃 ʜᴏʟᴅᴇʀ + ᴘᴇᴀᴄᴇᴍᴀᴋᴇʀ]</p>
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />ʜᴇ/ʜɪᴍ . ᴍᴏꜱᴛʟʏ ꜰʀᴏɴᴛꜱ ᴡʜᴇɴ ʜɪɢʜ . ᴅɴɪᴜꜰ</p>
-
+<img width="400" height="133" alt="cf astro" src="https://github.com/user-attachments/assets/ef0ccc80-eb0e-490b-8236-6013b0339de7" />
 
 
 
@@ -226,17 +139,11 @@
 
 <div></div>
 
+
+
+
 <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
-<img width="400" height="55" src="https://github.com/user-attachments/assets/0af6ae18-1ea7-4eff-84ec-5e9b6d36eac8" />
-
-
-
-<div></div>
-<img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
-
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />ʀᴇ:ʜᴀꜱʜ [ᴅᴇʜᴜᴍᴀɴɪᴢᴀᴛɪᴏɴ ʜᴏʟᴅᴇʀ + ᴀɢɢʀᴇꜱꜱᴏʀ]</p>
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />ɪᴛ/ʜᴇ . ᴅɴɪ</p>
-
+<img width="400" height="225" alt="hyhyhfygf" src="https://github.com/user-attachments/assets/dd8d04ca-cfb7-4954-97cd-db2a5fe425ec" />
 
 
 
@@ -249,6 +156,7 @@
 
 <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
 <img width="400" height="55" src="https://github.com/user-attachments/assets/0af6ae18-1ea7-4eff-84ec-5e9b6d36eac8" />
+
 
 
 <div> </div>
