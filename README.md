@@ -36,7 +36,7 @@
 
 <div> </div>
 
-<img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
+<img width="80" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
 <img width="100" height="50" alt="tumblr_6d5308bde24f0b9dc5971211f6fcf9f4_92d4879e_250" src="https://github.com/user-attachments/assets/07465206-e0fc-4c81-901d-a203b3c09a4a" />
 <img width="100" height="50" alt="tumblr_e9c1dee4a92546949d05cd64281f78fb_0d48127e_100" src="https://github.com/user-attachments/assets/f5c5f496-c64c-426e-bcc5-2703e27ee022" />
 <img width="100" height="50" src="https://github.com/user-attachments/assets/32c3fca6-3f9d-432e-89dd-ec7ff57411e7" />
