@@ -77,6 +77,8 @@
 <img width="400" height="55" src="https://github.com/user-attachments/assets/0af6ae18-1ea7-4eff-84ec-5e9b6d36eac8" />
 
 <p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" /> ᴜꜱᴜᴀʟʟʏ ꜱɪᴛᴛɪɴɢ ᴀᴛ ᴛʜᴇ ʀᴏʙʟᴏx ᴀʀᴇᴀ, ᴛʀʏɪɴɢ ᴛᴏ ᴛᴀʟᴋ ᴡɪᴛʜ ᴘᴘʟ ᴍᴏʀᴇ</p>
+<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" /> ɢᴜʏꜱ ᴘʟꜱ!!!! ɪ'ᴍ ꜰʀɪᴇɴᴅʟʏ ꜱᴛᴏᴘ ʙᴇɪɴɢ ɪɴᴛɪᴍɪᴅᴀᴛᴇᴅ</p>
+<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" /> ɪ'ᴍ ᴊᴜꜱᴛ ᴀᴡᴋᴡᴀʀᴅ ᴘʟꜱꜱꜱꜱꜱ </3</p>
 <p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" /> ɪ ʙʟᴏᴄᴋ ᴠᴇʀʏ ꜰʀᴇᴇʟʏ, ᴅᴏɴ'ᴛ ʙᴇ ᴏꜰꜰᴇɴᴅᴇᴅ ɪꜰ ʏᴏᴜ ɢᴇᴛ ʙʟᴏᴄᴋᴇᴅ</p>
 <p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" /> ᴘʟᴀʏ ᴍʏ ᴀᴡᴇꜱᴏᴍᴇ ɢᴀᴍᴇ!!!!!!!</p>
 <p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" /> https://www.roblox.com/games/140174079212562</p>
