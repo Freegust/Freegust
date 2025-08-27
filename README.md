@@ -66,22 +66,12 @@
   
 </div>
 
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" /> ꜱʏꜱ . 16 . ʜᴇ/ʜɪᴍ (ᴜɴʟᴇꜱꜱ ꜱᴛᴀᴛᴇᴅ ᴏᴛʜᴇʀᴡɪꜱᴇ) . ɢᴀʀᴅᴇɴᴇʀ 🍃</p>
+<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" /> ꜱʏꜱ . 16 . ʜᴇ/ʜɪᴍ (ᴜɴʟᴇꜱꜱ ꜱᴛᴀᴛᴇᴅ ᴏᴛʜᴇʀᴡɪꜱᴇ)</p>
 <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
 <img width="400" height="55" src="https://github.com/user-attachments/assets/0af6ae18-1ea7-4eff-84ec-5e9b6d36eac8" />
 <p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" /> 🟢 - ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ɪɴᴛ ɪꜰ ᴅɪꜱᴘʟᴀʏ ꜱᴀʏꜱ ꜱᴏ</p>
 <p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" /> 🌙 - ᴀꜰᴋ/ᴏꜰꜰᴛᴀʙ</p>
 <p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" /> ⛔ - ᴅɴɪᴜꜰ</p>
-
-<img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
-<img width="400" height="55" src="https://github.com/user-attachments/assets/0af6ae18-1ea7-4eff-84ec-5e9b6d36eac8" />
-
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" /> ᴜꜱᴜᴀʟʟʏ ꜱɪᴛᴛɪɴɢ ᴀᴛ ᴛʜᴇ ʀᴏʙʟᴏx ᴀʀᴇᴀ, ᴛʀʏɪɴɢ ᴛᴏ ᴛᴀʟᴋ ᴡɪᴛʜ ᴘᴘʟ ᴍᴏʀᴇ</p>
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" /> ɢᴜʏꜱ ᴘʟꜱ!!!! ɪ'ᴍ ꜰʀɪᴇɴᴅʟʏ ꜱᴛᴏᴘ ʙᴇɪɴɢ ɪɴᴛɪᴍɪᴅᴀᴛᴇᴅ</p>
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" /> ɪ'ᴍ ᴊᴜꜱᴛ ᴀᴡᴋᴡᴀʀᴅ ᴘʟꜱꜱꜱꜱꜱ </3</p>
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" /> ɪ ʙʟᴏᴄᴋ ᴠᴇʀʏ ꜰʀᴇᴇʟʏ, ᴅᴏɴ'ᴛ ʙᴇ ᴏꜰꜰᴇɴᴅᴇᴅ ɪꜰ ʏᴏᴜ ɢᴇᴛ ʙʟᴏᴄᴋᴇᴅ</p>
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" /> ᴘʟᴀʏ ᴍʏ ᴀᴡᴇꜱᴏᴍᴇ ɢᴀᴍᴇ!!!!!!!</p>
-<p> <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" /> https://www.roblox.com/games/140174079212562</p>
 
 <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
 <img width="400" height="55" src="https://github.com/user-attachments/assets/0af6ae18-1ea7-4eff-84ec-5e9b6d36eac8" />
@@ -135,7 +125,7 @@
 
 
 <img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
-<img width="400" height="133" alt="cf astro" src="https://github.com/user-attachments/assets/ef0ccc80-eb0e-490b-8236-6013b0339de7" />
+<img width="400" height="133" alt="cf astro" src="https://github.com/user-attachments/assets/7cb4b374-292f-41cc-8361-03ddd804177d" />
 
 
 
@@ -145,11 +135,8 @@
 
 
 
-
-<img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/471bca3d-86bd-4016-9a62-90572fb1947c" />
-<img width="400" height="225" alt="hyhyhfygf" src="https://github.com/user-attachments/assets/dd8d04ca-cfb7-4954-97cd-db2a5fe425ec" />
-
-
+<img width="45" height="1" alt="Transparent_Square_Tiles_Texture" src="https://github.com/user-attachments/assets/12b82e0f-5203-4f85-b90d-40a1f1e04850" />
+<img width="400" height="270" alt="hyhyhfygf" src="https://github.com/user-attachments/assets/264938e0-bb22-40b1-9f21-8ed2924deaff" />
 
 
 
