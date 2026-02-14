@@ -26,4 +26,14 @@
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ff35d3b7-dc18-484c-826b-e72ec0bde658" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d91d885f-7b98-40f8-b936-a0460a651fcc" />
 
+<div>
+  HILO!! I'm Freegust/Astro :P
+
+I'm usually AFK sitting in the Roblox area, unless my friends drag me away from it. I don't really talk on Ponytown, due to *SEVERE social anxiety* with talking to people I don't know :,(
+__BUT I do absolutely love it when people sit with me!!__
+
+Always feel free to C+H with me (unless you're cosplaying a Hazbin Hotel, Helluva Boss, APH, other problematic media)!!
+Will also SOMETIMES accept friend requests, usually only if actively C+H, but PLEASE DO NOT TRY TO TALK TO ME IF I ACCEPT, I WILL FREAAAAAAK OUT AND LEAVE I'M SORRY 💔
+</div>
+
 
